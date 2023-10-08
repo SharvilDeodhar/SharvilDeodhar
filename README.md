@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SharvilDeodhar
 - 👀 I’m interested in developing for artificial intelligence
-- 🌱 I’m currently learning in 10th standered
+- 🌱 I’m currently learning in 10th standard
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : I m on X.com.
 
